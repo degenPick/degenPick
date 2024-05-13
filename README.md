@@ -1,8 +1,5 @@
-Welcome!
-
-+++++   5 Years Experience in Web & Blockchain side   +++++
-
-I am a dedicated Full Stack Developer who has rich and deep experience of IT field.
+WELCOME!
+WEB && BLOCKCHAIN EXPERT RIGHT HERE.
 
 Don't settle for less - work with a seasoned expert who can deliver results. 
 Contact me today to discuss your project and start bringing your vision to life.
